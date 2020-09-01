@@ -1,1 +1,0 @@
-# Ronaldosumangkut.github.io
